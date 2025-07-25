@@ -7,3 +7,4 @@ Love, your magic
 
 (flower blooms in high school band - jesdo)
 นปก. hades' daughter
+ write by nan
