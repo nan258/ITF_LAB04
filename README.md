@@ -1,4 +1,9 @@
-hiiiii I'm nan. I love nct dream so muchhhhhhh. my main is JENO. He is a perfect man, so handsome 
-and very very kind and his smile is very very very and very beautiful.
-Finally!!!, I'm going to meet him.
-keep fightinggg!!
+"I fall in love with you
+every moment,
+whether in the past,
+present,
+or future."
+Love, your magic
+
+(flower blooms in high school band - jesdo)
+นปก. hades' daughter
